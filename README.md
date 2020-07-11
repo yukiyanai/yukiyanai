@@ -1,6 +1,9 @@
 **Yuki Yanai**, Ph.D. in Political Science
+
 *Assistant Professor*
+
 School of Econmics and Management
+
 [Kochi University of Technology](https://www.kochi-tech.ac.jp/kut/english/)
 
 <!--
