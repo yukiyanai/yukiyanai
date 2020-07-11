@@ -1,4 +1,7 @@
-### Hi there 👋
+**Yuki Yanai**, Ph.D. in Political Science
+*Assistant Professor*
+School of Econmics and Management
+[Kochi University of Technology](https://www.kochi-tech.ac.jp/kut/english/)
 
 <!--
 **yukiyanai/yukiyanai** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
