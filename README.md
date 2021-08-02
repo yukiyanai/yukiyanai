@@ -1,6 +1,6 @@
 **Yuki Yanai**, Ph.D. in Political Science
 
-*Assistant Professor*
+*Associate Professor*
 
 School of Econmics and Management
 
